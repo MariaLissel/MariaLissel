@@ -7,6 +7,9 @@
 
 </details>
 
-away from keyboard = 🐕 dogtime, 🧗‍♀️ hanging on the walls, 🐑 countin sheeps
+away from keyboard = 
+🐕 dogtime
+🧗‍♀️ hanging on the walls
+🐑 countin sheeps
 
-💜 for Mac
+a ❤ for Mac
